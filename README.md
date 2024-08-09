@@ -5,4 +5,4 @@ Estou estudando no [Alura](https://cursos.alura.com.br/dashboard)
 
 
 
-![](https://tenor.com/pt-BR/view/bolsonaro-point-dance-gif-17068964)
+![](https://media.tenor.com/LJESz-UrvGAAAAAi/dirty-emoji.gif)
