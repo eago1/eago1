@@ -5,4 +5,4 @@ Estou estudando no [Alura](https://cursos.alura.com.br/dashboard)
 
 
 
-![](https://media.tenor.com/LJESz-UrvGAAAAAi/dirty-emoji.gif)
+![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
